@@ -1,1 +1,1 @@
-# curd
+# curd telugu skills
